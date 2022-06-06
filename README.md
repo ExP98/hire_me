@@ -6,7 +6,7 @@
 - г. Санкт-Петербург
 - egorglushkov2014@yandex.ru
 - [Github](https://github.com/ExP98)
-- [VK](vk.com/exp98)
+- [VK](https://vk.com/exp98)
 
 ---
 
